@@ -5,4 +5,4 @@
 
 : ویدیو آموزش کامل در یوتیوب
 <br>
-https://www.youtube.com/watch?v=w7qz4vViW8M
+https://youtu.be/MS6kULJ_NVI
